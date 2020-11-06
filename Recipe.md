@@ -1,0 +1,1 @@
+Mix milk, sugar and tea powder and boil them over low 12 mins
